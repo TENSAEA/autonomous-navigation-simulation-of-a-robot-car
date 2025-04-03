@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/f420095b-a617-410f-a058-66dad74aeeea)
+
+
 # Table of Memebers
 
 Below is a table listing goup individuals:
